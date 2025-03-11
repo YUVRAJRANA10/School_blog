@@ -1,0 +1,1 @@
+Generative AI. Starting the list of new technology trends with the talk of the town, gen-AI! Generative AI is set to dominate as a key technology trend in 2025, reshaping industries through its ability to create highly sophisticated and human-like content, from text and images to audio and complex simulations
